@@ -1,1 +1,0 @@
-# sumanto.github.io
